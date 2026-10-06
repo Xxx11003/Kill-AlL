@@ -1,0 +1,2 @@
+# Kill-AlL
+./gg\
